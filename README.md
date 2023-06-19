@@ -1,23 +1,3 @@
-[
-
-Hipporello Logo
-
-](https://www.hipporello.com/)
-
-[
-
-What is Hipporello?
-
-](https://www.hipporello.com/trello-support#what-is-hipporello)
-
-[
-
-Free Live Trello Help
-
-](https://www.hipporello.com/trello-live-support)
-
-![](https://framerusercontent.com/images/EIXYOUbiQKcBTbxe1gnyfOFZffM.png)
-
 Get Unparalleled, Live Trello Support for Free with Hipporello
 ==============================================================
 
@@ -27,11 +7,7 @@ Turn to Hipporello's dedicated customer success team for live, immediate answers
 
 Reach out for Hipporello's
 
-[
-
-Free Live Trello Help
-
-](https://www.hipporello.com/trello-live-support)
+[Free Live Trello Help](https://www.hipporello.com/trello-live-support)
 
 ### Experience the Hipporello Advantage: Your Contact Point for Live Trello Help
 
