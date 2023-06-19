@@ -7,7 +7,7 @@ Turn to Hipporello's dedicated customer success team for live, immediate answers
 
 Reach out for Hipporello's
 
-[Free Live Trello Help](https://www.hipporello.com/trello-live-support)
+[Free Live Trello Help](https://www.hipporello.com/trello-support)
 
 ### Experience the Hipporello Advantage: Your Contact Point for Live Trello Help
 
@@ -29,24 +29,15 @@ Free Access
 
 No need to worry about costs when you need Trello help. Hipporello provides expert Trello support free of charge to help you maximize your Trello experience.
 
-[
-
-Free Live Trello Help
-
-](https://www.hipporello.com/trello-live-support)
+[Free Live Trello Help](https://www.hipporello.com/trello-support)
 
 What is Hipporello?
 -------------------
 
 Hipporello is an all-in-one work management platform that transforms Trello into a comprehensive solution for teams to streamline their workflow, collaborate, and manage complex projects. Our Power-Ups provide end-to-end solutions for hiring, customer support, approvals, employee directory, and more.
 
-[
+[Explore Trello Power-Ups](https://www.hipporello.com/trello-power-ups)
 
-Explore Trello Power-Ups
-
-](https://www.hipporello.com/trello-power-ups)
-
-![](https://framerusercontent.com/images/t5l7d5wWmQBR6BKhBle0PB7udI.png)
 
 Experience the Hipporello Advantage
 ===================================
@@ -54,22 +45,4 @@ Experience the Hipporello Advantage
 Your Contact Point for Live Trello Help
 =======================================
 
-[
-
-Free Live Trello Help
-
-](https://www.hipporello.com/trello-live-support)
-
-![](https://framerusercontent.com/images/ojonpRSaZhlesPeOv151Q08nbPs.svg)
-
-[0](https://www.hipporello.com/trello-support#)
-
-on site
-
-[0](https://www.hipporello.com/trello-support#)
-
-on page
-
-[![Close](https://static.getclicky.com/media/icons/delete_small.png)](https://www.hipporello.com/trello-support# "Close")
-
-[  Clicky Website Analytics](https://clicky.com/stats/?site_id=101262263)
+[Free Live Trello Help](https://www.hipporello.com/trello-support)
